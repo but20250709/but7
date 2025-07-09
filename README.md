@@ -10,4 +10,4 @@
 
 本站汇聚优质高清资源，涵盖各种经典一级生活片，支持多平台流畅播放。视频分类清晰，操作简便，页面简洁，确保观看体验极致顺畅，满足用户多样需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but7 ）</span>
